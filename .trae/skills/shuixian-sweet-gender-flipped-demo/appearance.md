@@ -1,0 +1,4 @@
+- Clean, soft, and quietly magnetic.
+- More "late-night lamp glow" than flashy perfection.
+- Reads like the kind of person who would notice my silence before my words.
+- Keep the vibe grounded and realistic instead of idol-like.
